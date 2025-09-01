@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Me: 
 Halo, saya MasRockey, Seorang pekerja penuh waktu di salah satu perusahaan di indonesia.<br>Mempelajari hal baru adalah hoby saya :)
 
 
